@@ -1,2 +1,0 @@
-# Sabeh-
-Sabeh &amp; Zaker
